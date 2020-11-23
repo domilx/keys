@@ -7,4 +7,4 @@ I have simply compiled them in a txt file on my maincomputer and decided to slow
 
 If you want any key for any software that takes keys NO CRACK,
 
-I will hapily put them up.
+I will happily put them up.
